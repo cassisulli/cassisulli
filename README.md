@@ -9,6 +9,6 @@
       3. Machine Learning
 
 - 📫 How to reach me ...
-      1. Email: cassirose23@gmail.com
+      1. Email: cassi.r.sullivan@gmail.com
 
 
